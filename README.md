@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LilUwizard
+- 👀 I’m interested in learning how to code
+- 🌱 I’m currently doing a python course and would not mind if anyone had any tips/tricks to make it easier  
+- 💞️ I’m looking to collaborate on projects that would educate me on things i havent learned yet
+- 📫 you can reach me on telegram @uwaissohal@yahoo.com
